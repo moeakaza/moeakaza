@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=moeakaza&color=cc4687&style=flat&label=,་།་&base=120)
+![](https://komarev.com/ghpvc/?username=moeakaza&color=cc4687&style=flat&label=⑅꒸𓐇ᩧຼ།་&base=120)
 
 hi i like kny but i dont like the majority of the fandom so umm iwc if ur apart of it okthanks
 
