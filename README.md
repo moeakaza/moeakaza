@@ -1,4 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=moeakaza&color=cc4687&style=flat&label=,་།་&base=120)
+hi i like kny but i dont like the majority of the fandom so umm iwc if ur apart of it okthanks
 
 <!--
 **moeakaza/moeakaza** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
